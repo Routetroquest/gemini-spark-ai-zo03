@@ -1,4 +1,4 @@
-# 
+# Nuevo Gemini Spark plugins. Con listo para empresas y protección de privacidad — optimizado para el máximo rendimiento y eficiencia.
 
 
 
